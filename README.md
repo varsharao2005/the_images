@@ -33,5 +33,52 @@ ssss#**_Task 1_**
 
 
 ![image](https://github.com/varsharao2005/the_images/assets/148563974/6f50cac1-6442-4885-8c48-a1bf5093c77e)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/b097bd2a-47f2-4984-aeda-45fced411225)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/20fdaf33-06ba-41f2-8099-546b9021df80)
+
+
+#**_Task 5_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/1bf4087a-cd40-4545-894b-9afbdea74d65)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/909c3f6d-fe34-4265-82a1-634a35db77cc)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/9578532e-673d-4a4d-b6c7-e1862dff6a27)
+
+
+#**_Task 7_**
+
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/3702e31a-40ec-40fb-bf3f-1db6091ef9ae)
+
+
+#**_Task 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
