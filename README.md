@@ -31,25 +31,165 @@ ssss#**_Task 1_**
 
 #**_Task 4_**
 
-
-![image](https://github.com/varsharao2005/the_images/assets/148563974/6f50cac1-6442-4885-8c48-a1bf5093c77e)
-![image](https://github.com/varsharao2005/the_images/assets/148563974/b097bd2a-47f2-4984-aeda-45fced411225)
-![image](https://github.com/varsharao2005/the_images/assets/148563974/20fdaf33-06ba-41f2-8099-546b9021df80)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/5df9fe30-e7c9-4ba5-abb3-b60564b38abf)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/6f2d13bc-7d4f-4b3e-b5b5-8e76b54ca612)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/d50bbb24-720f-4844-b5ff-6d121e94553f)
 
 
 #**_Task 5_**
 
 
-![image](https://github.com/varsharao2005/the_images/assets/148563974/1bf4087a-cd40-4545-894b-9afbdea74d65)
-![image](https://github.com/varsharao2005/the_images/assets/148563974/909c3f6d-fe34-4265-82a1-634a35db77cc)
-![image](https://github.com/varsharao2005/the_images/assets/148563974/9578532e-673d-4a4d-b6c7-e1862dff6a27)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/3702e31a-40ec-40fb-bf3f-1db6091ef9ae)
 
 
 #**_Task 7_**
 
 
+![image](https://github.com/varsharao2005/the_images/assets/148563974/ffc83d37-0842-4789-8800-e6346e27d527)
 
-![image](https://github.com/varsharao2005/the_images/assets/148563974/3702e31a-40ec-40fb-bf3f-1db6091ef9ae)
+
+#**_Task 8_**
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/acaac9a5-c0b4-4ebb-b5b5-523ea334c2ab)
+
+
+
+#**_Task 9_**
+
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/eb50aa73-df37-4fcb-90e5-07bb85dce093)
+
+
+#**_Task 10_**
+
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/6bf1f29b-ba25-40ff-93a2-bd4f3d564b36)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/2322d4ec-bf27-4353-bdf6-65ff108678ea)
+
+
+
+#**_Task 11_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/309ac0da-180e-4212-9850-59eb42cad98c)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/2506657c-7fbb-480c-9381-7040b61101b5)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/68c38479-4c56-41f5-906b-135452e53741)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/899c0b3a-d4a9-4d13-8e68-f56419fb4e98)
+
+
+
+#**_Task 12_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/cf2af3ce-dc7a-41ea-ba02-6e2ec320ee52)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/38897ca6-acdc-4341-9e95-79391dd885ec)
+
+
+#**_Task 13_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/1817e264-4990-47b8-a6cc-7d249cfaef5e)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/b47515d0-8815-4c54-b8c0-4bbfe249b389)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/b91a16be-c7e0-4115-904a-ee3711fcd59f)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/a82068b7-5ccb-4871-a8fc-a1043603a89a)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/28d2be2a-5ab1-4d74-841a-82befbb448df)
+
+
+
+#**_Task 14_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/81e32782-28eb-4b7c-b6fd-ad4b02f46402)
+
+
+#**Task 15_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/e84df924-acf8-454f-a10d-ca72b0879a29)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/2846edb0-d5ab-44dd-975e-7096267ce668)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/8fb9cd94-1454-4f9b-954b-0e250c945e1f)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/3f0ba7e8-0c28-4cd2-a742-9efc231e8002)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 #**_Task 
