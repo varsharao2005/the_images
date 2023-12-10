@@ -22,3 +22,16 @@ ssss#**_Task 1_**
 ![5976d1c6-c284-4a90-a6df-801da2c3ad77](https://github.com/varsharao2005/the_images/assets/148563974/9d6ba539-d19b-4829-90b6-abad1d907dd1)
 
 
+#**_Task 3_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/214af485-52d7-44ec-93b7-31d1c4922472)
+![image](https://github.com/varsharao2005/the_images/assets/148563974/f884e0dc-50ec-4094-be0d-f5b3875eb404)
+
+
+#**_Task 4_**
+
+
+![image](https://github.com/varsharao2005/the_images/assets/148563974/6f50cac1-6442-4885-8c48-a1bf5093c77e)
+
+
